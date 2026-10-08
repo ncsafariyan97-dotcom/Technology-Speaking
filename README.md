@@ -1,2 +1,0 @@
-# Technology-Speaking
-Ensieh
